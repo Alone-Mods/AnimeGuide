@@ -49,6 +49,17 @@ Just Redirect page , I dont Own these Channels
 
 
 
+## 🎯9Anime
+  <div align="center">
+    
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/9anime.jpg?size=200)](https://9anime.pl/home)
+
+[`9anime`](https://9anime.pl/home)  
+
+If The Link is Not working Please visit
+[`9AnimeOfficial`](https://9anime.me/)
+  </div>
+
 
 ## ⭐ TELEGRAM CHANNELS
 
