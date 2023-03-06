@@ -15,11 +15,11 @@
 
   
   
-## 📢 Support Group 
-Click The Logo And Join our Group
+## 📢 Support  
+Any Doubts?Contact Me..!!
     <br>
 <br>
-  [![join](https://i.imgur.com/reMlxoc.png)](http://wa.me/+916235693746)
+  [![Insta](https://i.imgur.com/reMlxoc.png)](http://wa.me/+916235693746)
   <div align="center">
        
   </div>
