@@ -35,3 +35,13 @@ Click The Logo And Join our Group
 Just Redirect page , I dont Own these Channels
   </div>
 
+
+## 🎯ANIME GALLERY 
+  <div align="center">
+    
+  [![`Prince Rudh`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animegallery.jpg?size=200)](https://t.me/Anime_Gallery)
+
+[`ANIME GALLARY`](https://t.me/Anime_Gallery)  
+A LARGE COLLECTION OF ANIMES
+  </div>
+
