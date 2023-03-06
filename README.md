@@ -68,3 +68,14 @@ HERE YOU CAN FIND A WIDE COLLECTION OF ANIMES🎉
 And Much more!
   </div>
 
+## 🎯ANIME MANIA 
+  <div align="center">
+    
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animemania.jpg?size=200)](https://t.me/Anime_Maniaac)
+
+[`ANIME MANIA`](https://t.me/Anime_Maniaac)  
+
+ENJOY❤️
+  </div>
+
+
