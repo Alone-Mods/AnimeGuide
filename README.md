@@ -29,7 +29,7 @@ Click The Logo And Join our Group
 ## 𝑨𝑳𝑶𝑵𝑬♡︎𝑺𝑬𝑹
   <div align="center">
     
-  [![`Prince Rudh`](https://github.com/Alone-Mods.png?size=200)](https://github.com/Alone-Mods)
+  [![`ALONE`](https://github.com/Alone-Mods.png?size=200)](https://github.com/Alone-Mods)
 
 [`ALONE`](https://github.com/Alone-Mods)  
 Just Redirect page , I dont Own these Channels
@@ -41,7 +41,7 @@ Just Redirect page , I dont Own these Channels
 ## 🎯ANIME GALLERY 
   <div align="center">
     
-  [![`Prince Rudh`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animegallery.jpg?size=200)](https://t.me/Anime_Gallery)
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animegallery.jpg?size=200)](https://t.me/Anime_Gallery)
 
 [`ANIME GALLARY`](https://t.me/Anime_Gallery)  
 A LARGE COLLECTION OF ANIMES
@@ -51,7 +51,7 @@ A LARGE COLLECTION OF ANIMES
 ## 🎯ANIME LIBRARY 
   <div align="center">
     
-  [![`Prince Rudh`](https://github.com/Alone-Mods/filesmahnn/blob/main/AnimeLibrary.jpg?size=200)](https://t.me/Anime_Library)
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/AnimeLibrary.jpg?size=200)](https://t.me/Anime_Library)
 
 [`ANIME LIBRARY`](https://t.me/Anime_Library)  
 HERE YOU CAN FIND A WIDE COLLECTION OF ANIMES🎉
@@ -108,4 +108,14 @@ ANIME ON DEMAND
 ⭐SIMILAR ANIME RECOMMENDATION
   </div>
 
+
+## 🎯ETY ANIME 
+  <div align="center">
+    
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/ETY%20ANIME.jpg?size=200)](https://t.me/Anime_ETY)
+
+[`ETY ANIME`](https://t.me/Anime_ETY)  
+
+ENJOY WATCHING THE LATEST ONGOING ANIMES❤️
+  </div>
 
