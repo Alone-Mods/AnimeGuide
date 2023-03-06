@@ -78,4 +78,15 @@ And Much more!
 ENJOY❤️
   </div>
 
+## 🎯ANIME PIRATES 
+  <div align="center">
+    
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/animePirates.jpg?size=200)](https://t.me/Anime_Pirates)
+
+[`ANIME PIRATES`](https://t.me/Anime_Pirates)  
+
+🏴‍☠️ANIME PIRATES - DOWNLOAD ONGOING ANIMES❤️🎯
+  </div>
+
+
 
