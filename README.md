@@ -145,3 +145,14 @@ ANIME ON DEMAND
 ENJOY WATCHING THE LATEST ONGOING ANIMES❤️
   </div>
 
+## ⭐ Wanna Read Manga.?
+
+
+## 🎯MANGA GALLERY 
+  <div align="center">
+    
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/IMG_20230306_115749_989.jpg?size=200)](https://t.me/Manga_Gallery)
+
+[`MANGA`](https://t.me/Manga_Gallery)  
+📌READ MANGA,MANHWA ETC..HERE!!
+  </div>
