@@ -67,9 +67,9 @@ If The Link is Not working Please visit
 ## 🎯ANIME GALLERY 
   <div align="center">
     
-  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animegallery.jpg?size=200)](https://t.me/Anime_Gallery)
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animegallery.jpg?size=200)](https://telegram.me/Anime_Gallery)
 
-[`ANIME GALLARY`](https://t.me/Anime_Gallery)  
+[`ANIME GALLARY`](https://telegram.me/Anime_Gallery)  
 A LARGE COLLECTION OF ANIMES
   </div>
 
@@ -77,18 +77,18 @@ A LARGE COLLECTION OF ANIMES
 ## 🎯ANIME LIBRARY 
   <div align="center">
     
-  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/AnimeLibrary.jpg?size=200)](https://t.me/Anime_Library)
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/AnimeLibrary.jpg?size=200)](https://telegram.me/Anime_Library)
 
-[`ANIME LIBRARY`](https://t.me/Anime_Library)  
+[`ANIME LIBRARY`](https://telegram.me/Anime_Library)  
 HERE YOU CAN FIND A WIDE COLLECTION OF ANIMES🎉
   </div>
 
 ## 🎯ANIME OCEAN 
   <div align="center">
     
-  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/animeOcean.jpg?size=200)](https://t.me/Anime_Ocean_Backup)
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/animeOcean.jpg?size=200)](https://telegram.me/Anime_Ocean_Backup)
 
-[`ANIME OCEAN`](https://t.me/Anime_Ocean_Backup)  
+[`ANIME OCEAN`](https://telegram.me/Anime_Ocean_Backup)  
 
 🔆 Largest Anime Community 🔆
 🌟 Over 1000+ Anime Channels 🌟
@@ -99,9 +99,9 @@ And Much more!
 ## 🎯ANIME MANIA 
   <div align="center">
     
-  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animemania.jpg?size=200)](https://t.me/Anime_Maniaac)
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animemania.jpg?size=200)](https://telegram.me/Anime_Maniaac)
 
-[`ANIME MANIA`](https://t.me/Anime_Maniaac)  
+[`ANIME MANIA`](https://telegram.me/Anime_Maniaac)  
 
 ENJOY❤️
   </div>
@@ -109,9 +109,9 @@ ENJOY❤️
 ## 🎯ANIME PIRATES 
   <div align="center">
     
-  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/animePirates.jpg?size=200)](https://t.me/Anime_Pirates)
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/animePirates.jpg?size=200)](https://telegram.me/Anime_Pirates)
 
-[`ANIME PIRATES`](https://t.me/Anime_Pirates)  
+[`ANIME PIRATES`](https://telegram.me/Anime_Pirates)  
 
 🏴‍☠️ANIME PIRATES - DOWNLOAD ONGOING ANIMES❤️🎯
   </div>
@@ -121,9 +121,9 @@ ENJOY❤️
 ## 🎯ANIME CLAN 
   <div align="center">
     
-  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animeclan.jpg?size=200)](https://t.me/Anime_x_Clan)
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animeclan.jpg?size=200)](https://telegram.me/Anime_x_Clan)
 
-[`ANIME-X-CLAN`](https://t.me/Anime_x_Clan)  
+[`ANIME-X-CLAN`](https://telegram.me/Anime_x_Clan)  
 
 📌JOIN THE BEST ANIME CHANNEL ON
 TELEGRAM WITH OVER 900+| ANIME UPLOADS
@@ -138,9 +138,9 @@ ANIME ON DEMAND
 ## 🎯ETY ANIME 
   <div align="center">
     
-  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/ETY%20ANIME.jpg?size=200)](https://t.me/Anime_ETY)
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/ETY%20ANIME.jpg?size=200)](https://telegram.me/Anime_ETY)
 
-[`ETY ANIME`](https://t.me/Anime_ETY)  
+[`ETY ANIME`](https://telegram.me/Anime_ETY)  
 
 ENJOY WATCHING THE LATEST ONGOING ANIMES❤️
   </div>
@@ -151,8 +151,8 @@ ENJOY WATCHING THE LATEST ONGOING ANIMES❤️
 ## 🎯MANGA GALLERY 
   <div align="center">
     
-  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/IMG_20230306_115749_989.jpg?size=200)](https://t.me/Manga_Gallery)
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/IMG_20230306_115749_989.jpg?size=200)](https://telegram.me/Manga_Gallery)
 
-[`MANGA`](https://t.me/Manga_Gallery)  
+[`MANGA`](https://telegram.me/Manga_Gallery)  
 📌READ MANGA,MANHWA ETC..HERE!!
   </div>
