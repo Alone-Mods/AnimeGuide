@@ -55,3 +55,16 @@ A LARGE COLLECTION OF ANIMES
 HERE YOU CAN FIND A WIDE COLLECTION OF ANIMES🎉
   </div>
 
+## 🎯ANIME OCEAN 
+  <div align="center">
+    
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/animeOcean.jpg?size=200)](https://t.me/Anime_Ocean_Backup)
+
+[`ANIME OCEAN`](https://t.me/Anime_Ocean_Backup)  
+
+🔆 Largest Anime Community 🔆
+🌟 Over 1000+ Anime Channels 🌟
+❄️ Largest Ongoing Library ❄️
+And Much more!
+  </div>
+
