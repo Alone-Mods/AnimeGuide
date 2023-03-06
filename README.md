@@ -35,6 +35,8 @@ Click The Logo And Join our Group
 Just Redirect page , I dont Own these Channels
   </div>
 
+## ⭐ TELEGRAM CHANNELS
+
 
 ## 🎯ANIME GALLERY 
   <div align="center">
@@ -88,5 +90,22 @@ ENJOY❤️
 🏴‍☠️ANIME PIRATES - DOWNLOAD ONGOING ANIMES❤️🎯
   </div>
 
+
+
+## 🎯ANIME CLAN 
+  <div align="center">
+    
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/Animeclan.jpg?size=200)](https://t.me/Anime_x_Clan)
+
+[`ANIME-X-CLAN`](https://t.me/Anime_x_Clan)  
+
+📌JOIN THE BEST ANIME CHANNEL ON
+TELEGRAM WITH OVER 900+| ANIME UPLOADS
+ANIME ON DEMAND
+⭐NEW + OLD GENERATION ANIME
+⭐720p + DUAL AUDIO IF RELEASED
+⭐SPECIAL CHANNEL FOR DUB ANIME
+⭐SIMILAR ANIME RECOMMENDATION
+  </div>
 
 
