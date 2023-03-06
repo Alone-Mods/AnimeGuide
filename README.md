@@ -35,6 +35,21 @@ Click The Logo And Join our Group
 Just Redirect page , I dont Own these Channels
   </div>
 
+## ⭐ WATCH ONLINE
+
+
+## 🎯ZORO 
+  <div align="center">
+    
+  [![`ALONE`](https://github.com/Alone-Mods/filesmahnn/blob/main/Zoro.png?size=200)](https://zoro.to/home)
+
+[`Zoro.to`](https://zoro.to/home)  
+📌You can watch animes in any quality without any popup ads❤️Enjoy Watching ⭐
+  </div>
+
+
+
+
 ## ⭐ TELEGRAM CHANNELS
 
 
