@@ -19,7 +19,7 @@
 Any Doubts?Contact Me..!!
     <br>
 <br>
-  [![Insta](https://i.imgur.com/reMlxoc.png)](http://wa.me/+916235693746)
+  [![Insta](https://github.com/Alone-Mods/filesmahnn/blob/main/insta.png.jpg)](https://instagram.com/4lon3.xyz?igshid=ZDdkNTZiNTM=)
   <div align="center">
        
   </div>
