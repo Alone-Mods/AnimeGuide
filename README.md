@@ -15,15 +15,7 @@
 
   
   
-## 📢 Support  
-Any Doubts?Contact Me..!!
-    <br>
-<br>
-  [![Insta](https://github.com/Alone-Mods/filesmahnn/blob/main/insta.png.jpg)](https://instagram.com/4lon3.xyz?igshid=ZDdkNTZiNTM=)
-  <div align="center">
-       
-  </div>
-  
+
 
 
 ## 𝑨𝑳𝑶𝑵𝑬♡︎𝑺𝑬𝑹
@@ -156,3 +148,15 @@ ENJOY WATCHING THE LATEST ONGOING ANIMES❤️
 [`MANGA`](https://telegram.me/Manga_Gallery)  
 📌READ MANGA,MANHWA ETC..HERE!!
   </div>
+
+
+
+## 📢 Support  
+Any Doubts?Contact Me..!!
+    <br>
+<br>
+  [![Insta](https://github.com/Alone-Mods/filesmahnn/blob/main/insta.png.jpg)](https://instagram.com/4lon3.xyz?igshid=ZDdkNTZiNTM=)
+  <div align="center">
+       
+  </div>
+  
