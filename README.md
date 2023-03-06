@@ -28,8 +28,8 @@ Any Doubts?Contact Me..!!
 
 ## 𝑨𝑳𝑶𝑵𝑬♡︎𝑺𝑬𝑹
   <div align="center">
-    
-  [![`ALONE`](https://github.com/Alone-Mods.png?size=200)](https://github.com/Alone-Mods)
+  <img border-radius: 15px src="https://github.com/Alone-Mods.png" />
+  <p align="center">
 
 [`ALONE`](https://github.com/Alone-Mods)  
 Just Redirect page , I dont Own these Channels
